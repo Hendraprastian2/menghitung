@@ -1,0 +1,2 @@
+# menghitung
+Rumus mempermudahkan
